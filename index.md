@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Alexandra E Hill
 
-I'm glad you are here. I plan to talk about ...
+Thank you for coming to my website.
